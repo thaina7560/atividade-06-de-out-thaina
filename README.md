@@ -1,1 +1,0 @@
-# atividade-06-de-out-thaina
